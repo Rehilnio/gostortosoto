@@ -1,0 +1,2 @@
+# gostortosoto
+cakal sütlü cikolta
